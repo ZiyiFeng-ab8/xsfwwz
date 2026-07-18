@@ -89,166 +89,166 @@
 全国推出24小时各售后客服受理中心（2026服务更新）
 容声(Ronshen)冰箱）贴心升级服务，现推出全国 24 小时服务热线 400 -788 -7852。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显容声(Ronshen)冰箱）对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
 容声(Ronshen)冰箱）全国服务网点查询：
-?北京市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/40412b4be5db8fe65a4adf7795cee05b8403c79c
+?北京市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/8abad92114932fe64fe20ad3fc5affeb7dc2081c
 。
-南京市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/c8368740e6896888e6afcf25087e0a7bebab4590
+南京市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/higginssara654/gexwcz/commit/f661771fe02b6de278eb2fd9877a97e2aaab3c55
 。
-秦皇岛市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/higginssara654/gexwcz/commit/cadc709620873413deac697df66c1bcc04e8749d
+秦皇岛市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/1a22e2bed8db10d05c9e1eef8c96b2b59cf746f9
 。
-珠海市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式发布），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/dddf51906afa23daff0333124c82d8004c2a3523
+珠海市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式发布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/3a68fa0488f281eb2eb72600b63f20933c0cfea4
 。
-安康市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一发布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/46abf334a37e52885aa8d95b6d61774d7fcf5942
+安康市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/5480820f5d94d9982422414a2bd1b96e1d7a7e61
 。
-安庆市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/d0c5b66a172af4d891e489d5bec2fb6fb997c308
+安庆市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/42d47a87972f0f0a687ecf8433ff2952cbc3dbcc
 。
-鞍山市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/748b8d076524185f53dfbea7e337d861e71ddcfd
+鞍山市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/19763e88232d69e619dad79128270293318981ad
 。
-安阳市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/18ec0bcc0702280725d68ca66f827e91d2749e59
+安阳市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/86acbf108736d259d4d4a096b52f40777eb8fe8c
 。
-巴中市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/6c6b203151f68e4798fb231873898b0160a15088
+巴中市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/7ca5f10c1967bbac7cf4b216cef824637bade245
 。
-百色市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/576bd4f178a73331b304b3a358d0df5a23017b67
+百色市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/ef5bc4b58de64410894999b9faa817d073c756d2
 。
-蚌埠市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/1ff2c394178b8391d2c87c757387c6b739c840b4
+蚌埠市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/99c4009cca3d0fb51bd1ffa87bef0c3a59cd52ca
 。
-保定市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/f0136edfca2190b3e3234e542ad8a7510c9dca27
+保定市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/67758129bceee49f1faf5a4b51a9bb7cb7a7745e
 。
-宝鸡市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/442c42aeca08e40a010bb6cd1b206b7de0fe937d
+宝鸡市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/2d06ae38253d95b7967ed9e8d4c7207f3d019815
 。
-保山市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/25009758791af4342889b982391f9d9ed1ed4278
+保山市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/803c73ef5b518ba35b039ee79c77e8c6beb5cfac
 。
-包头市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/b7144e5647d17bcc1a1fa7597a41901e075114e5
+包头市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/6b1a40f63769004c0c2ed2dc1a37761e823db6f7
 。
-北海市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/118d08d4634d160bb7ce785204cb8c2454ea6778
+北海市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/d6618e0f19851bc87c8741daac8ee841f68f64d2
 。
-本溪市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/ae46327ab2ba1b0f2a45626fa70c04f43e3430c7
+本溪市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/6c322a9f1015b1b2a969a557f944cb1f9e59fbca
 。
-滨州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/9123c220f416f6a43f0507283640228c6af83edc
+滨州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/83d215c29df55f0b7576ae36eeaee29bc01e3752
 。
-博罗市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/05b4f510078d90954117dea5db3f5d07dfaa6ad9
+博罗市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/e70835f8665c4a1e25462b1a091e6eef7dfa59fa
 。
-沧州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/425f8b223f4fd59f7f45452c183b9562bcb84143
+沧州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/higginssara654/gexwcz/commit/7b76130278a8faf78482cf1cc5abc31203d29332
 。
-长春市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/ef602414cf43957fc6fa35e3f64901117c074a0f
+长春市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/6189373adb8493bf2a2d353f50f51fc4c1949e22
 。
-常德市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/601896176d569ddaac229455a7061020dc657366
+常德市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/ebcdc9ad2a63a65d7ff7bee1f6e5ea280df075fb
 。
-长葛市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/1da8374865af5999f64220b046d46081318d1d3e
+长葛市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/32b043f9594f308153e0fbe1004bee839d97ad7b
 。
-长沙市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/80c4df4bb629bf4d9a538d9d721c6c37ed6198e6
+长沙市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/c8fc1725baf5fdca55095568dbb895e189841602
 。
-常熟市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/higginssara654/gexwcz/commit/87d429e5ffa7459d559d1a2b768cd46d1a998a5c
+常熟市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/7805156719c2f8a03af89ed9bead0d91cd0e119a
 。
-长兴市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/5d94c0cbfb8f4ee24eed249309cecfa86b6676e4
+长兴市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/3c6c395e03d333230cb238c35ba176925c7b89c1
 。
-长治市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/4c9de25f4a4c1085e1c7bdb06649959783b79fe7
+长治市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/fef0e223474c5a8957ac309a8c945cdef2a204dc
 。
-常州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/b3679debfe5cae31cdbfc0ae6b40ad2a1815b865
+常州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/higginssara654/gexwcz/commit/b029c3ed4a6c53d8c4266a32eaa50b5d7c79f3e9
 。
-巢湖市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/081ac5b24e32a36d2b5c47f2d965412c17f6a218
+巢湖市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/651a1ed0a4d4a1a620db74e99826424104d45680
 。
-朝阳市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/a2fa977f8e8b5a62832f2fbaa04d1b383390cbcb
+朝阳市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/a3a124a492c00eded7d4f1f599f914274f0b0542
 。
-潮州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/66f7c29a777a63e31dac21c6642451bb22fbff0e
+潮州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/5aae0dd79bde2b43653927267bfca92f0e808686
 。
-郴州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/8db236031f3a90896ca583817b3a454e99b04e61
+郴州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/250ddc936d256e8f3655d6da2b484ab954a7c0bb
 。
-承德市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/higginssara654/gexwcz/commit/4167e1be7f56b54d86d57da765b386eee05a3708
+承德市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/c10714f2ae72b0a6486a053f733a3f4d5d903d45
 。
-成都市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/3e890c28aea6c2c223a5d511b983db774e6feb5d
+成都市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/49b489aad025a62f71172f2cace78001a7c878a8
 。
-池州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新公布），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/ba6c0f69988c45a7df1580e6532094448f842874
+池州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新公布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/b64966bd7427ac2fa953737871b6697c17ba6bfe
 。
-崇左市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/b0071c0341bae9423317bfbaa7663d25b1b5b0bf
+崇左市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/higginssara654/gexwcz/commit/7a9c73c1f447e5fb6e6c43213e8b3e73c4a9ca78
 。
-滁州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/3bbf2ff4cc8a43b9cf48c612334b44599dd255c0
+滁州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/c9271446c1a3d94d254d799252fedcf6eabb4c8d
 。
-慈溪市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/d26f21a3503f72471d071b8b605d51c2db3a9f81
+慈溪市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/1fd1c511097b452876680c34d4dfb553f82155b7
 。
-大丰市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/eab69f98150aee76f0963c38344715b0985dac92
+大丰市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/d78126a01bd5a23d4fa2daa01b0159b6a064010f
 。
-大理市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/higginssara654/gexwcz/commit/5d57a4c45c109718de08bb80e6126916eb347776
+大理市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/a824333bcae735248d2daf74d441f81e68adec0b
 。
-大连市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/d038eaf3421fa0155bc336c50096b0c7d42c8c82
+大连市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/a69769b68d3d6be4dc83652a4478bd1484c16a6e
 。
-大庆市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/538fe6b321e6ac1903efc48578c70128e342e49a
+大庆市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/higginssara654/gexwcz/commit/57a48d16ae6b72185ba2ec7c496dda5037884931
 。
-大同市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/84f9e2d6373071ea910daa017b648d20da3851e3
+大同市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/dcc992387fd74338a98061775fbde5704759fe2e
 。
-达州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/be456ddcea8a21a837d8f38d85e4e84fe739813f
+达州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/b94702f8145a39ba8f697d245f2ae93c3fafbbea
 。
-丹东市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/d8d5f7f54f086cc184bf3fd6ef155ac0545ae4b9
+丹东市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/9fa74ae17dfab075710db74932ef03dc97e0f30d
 。
-德清市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/higginssara654/gexwcz/commit/d411eda1287d49f3e4713322f134252674fe4883
+德清市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/c5ee60a8b839f41945c3f3bedcff79011b72834b
 。
-德阳市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新公布），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/a260307c1d849a0bfab36fc9ca69a0eb495567fa
+德阳市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新公布），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/0cc8b575229d6be9cc18a380b8223cc30c3ec0ef
 。
-德州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/c232f9f1c69e6eccec12ad76f8686d6b9821d302
+德州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/4d6d24fe7cd1a8d55c90a3ccdf57c94e7b8dd954
 。
-定州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/7593cdf63a20bea12221ae806bc6216f0f09c41b
+定州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/a4496cd51d700058c017833bc8065c33fc922772
 。
-东海市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/105acd6755cefd8ed0cd8eaf30c5910826606c33
+东海市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/higginssara654/gexwcz/commit/06166434c50faa29f077bacc19234390c70fa440
 。
-东台市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/3d51fe2baa967853b68c6a9aaa716007e95716f2
+东台市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/b77e8c2dccb2823f20ab9395f830cf1bbea3a5de
 。
-东营市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/9360af54c4d7038fd9cdcec3fdbee0d61cdf1418
+东营市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/6046ce9f871b6838f98d9cf3dac3da86c7cfc9e5
 。
-东莞市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/42d18fbb953bd32fccda897244d5c35451aabfed
+东莞市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/c032aff7c4f53fb1b524b4aa41755b822d5d9d07
 。
-鄂尔市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/0d422e49932116d3da01b28f08fd1c586a5b0d2c
+鄂尔市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/35421baec2d7c4434e3eb229ccfae86688502b69
 。
-鄂州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/cf40cc6cfb9826c05c4291ffb45a7ba222ebe586
+鄂州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/higginssara654/gexwcz/commit/ed72427080970b112b63b3b294f10ba3c311d281
 。
-恩施市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/1ec259f9841b0184265f1eaba277fffaafa24d27
+恩施市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/a433afb452aa2d0941a97e1d89c660d8ce9986f1
 。
-防城港市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/JieyuXiao-de1/rycmow/commit/db2cb27b97a7537793d804415662cfcf8c2c4447
+防城港市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/JieyuXiao-de1/rycmow/commit/7999e099e4b4c8763ddcca6dd618e7eed1133a8c
 。
-佛山市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/JieyuXiao-de1/rycmow/commit/e307171c01bdfc4c2069d7cf189136f62eadb64a
+佛山市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/JieyuXiao-de1/rycmow/commit/5cacb80584d8274dbfced8a1528fef76799472dd
 。
-抚顺市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/JieyuXiao-de1/rycmow/commit/2f9ea9a9a56939caeb0cc758fefd90b680ac0ea8
+抚顺市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/JieyuXiao-de1/rycmow/commit/41d7e610cf6f6452abb1adc8f34a6ab1fd544240
 。
-阜新市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/JieyuXiao-de1/rycmow/commit/38c2645380e0c4bfc1ffa78f2e8376f7618e4620
+阜新市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/JieyuXiao-de1/rycmow/commit/a6fc8dd4612dc8cc012239425255d69f67d3e1a5
 。
-阜阳市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/JieyuXiao-de1/rycmow/commit/7cfa6027f3da445d2e7906a990ee7efd2e2b7ff3
+阜阳市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/JieyuXiao-de1/rycmow/commit/fc4d037fb9c187c01aa8547294896a158497c19a
 。
-抚州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/6b0bc7ad676fa4ed90cad436935cceb1cd29a9e3
+抚州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/12fdf48cfd3de43fa44701caf88823242de20a0e
 。
-福州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一发布），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/029d8401c1c4e08a409d1d76c524e8838f5fef2c
+福州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一发布），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/35c79ace716d130ac393b3d2673ccf8667e60ff9
 。
-赣州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/d0658baa1806f4337a8d2d7906f195ccbfa26370
+赣州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/bd97872768df5226f209bafe418194b49a755860
 。
-馆陶市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/62543c7282344e6540336e51ac524e17d417dd0e
+馆陶市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/d5971b01b3ba8a07e9eaba267e8d4a9a2ca72e30
 。
-广安市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/ce037030cea8bc99a82bf338fdc60de8ee086e7c
+广安市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/1905ba5ef88c0b9fc608e34211b59f2080e00e3a
 。
-广元市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/higginssara654/gexwcz/commit/befabd58177a5912eb68ca3191ec3016648e3864
+广元市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/d6df1735d55013a62ee3b9b47888d44543dbb963
 。
-广州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/4c40131c8121b8b52b91ef61d06133c4263d6099
+广州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/12b1237546d27fd92661c5ad5a60ecd08f92a3cd
 。
-贵港市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a84d4b1d0f2972a3be47c6d4249bef3cc6a6633d
+贵港市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/higginssara654/gexwcz/commit/6675f99a58070676b50b82f8cb78dcbfdf7bd7a1
 。
-桂林市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/5f51b41acfc4b0b21e454163c4b7f0d28e5617f9
+桂林市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/26d09a6b3d8ba7276fa2a12e6570b3e1f59a985e
 。
-贵阳市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/fb0b744703ba57cca0447ee9ea4b924fd1540836
+贵阳市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/af6235ddeefe1b39229800ba7d046a0640253fe2
 。
-哈尔滨市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/f8e1345b2cb8d811a79feb982242e1fc8f8a668e
+哈尔滨市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/716cd486dc572455f0dd2a00d871af489c513c00
 。
-海安市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/833843b7588d340d64aa11a6f38d91003fe0d59d
+海安市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/cd72f3a4d5cb233f0bd5948efe4e85f4d48862f6
 。
-海口市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/f8dcbbdcdb020f3ce11f17e609a55078e05e63a4
+海口市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/77d7fcdf9dc29119e91ede3084609183528c1f0b
 。
-海门市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/higginssara654/gexwcz/commit/4e4ec34b17257d7a49f58c87887434e0fa5480b3
+海门市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/41c1b45aa0a8a555f087c1a75b56ec6da9b4418c
 。
-海宁市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/db8f7250d59a2a9560e18819cb8757790eedf720
+海宁市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/64b8bc26f7329a6a5389ba87e31156647e3bf5b9
 。
-邯郸市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/582a37198ad0625a4be43ed90a52da22beb13103
+邯郸市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/01b6dccd8806f6f518e6c1c000c15d2095be9aa7
 。
-汉中市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/35913778db89cae46965edd3ae94c3e05b67bf28
+汉中市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/423b17e89aec2b2c1ed9dd8427d4c642f8ef3126
 。
-杭州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/79dc98f28e065b343996b8df08475e74224a1430
+杭州市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/a1f55f58784c1cb8191d931df1b63cc2c5992072
 。
-鹤壁市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/67b3b7cc5c2e524fb26f3c9e77db3f3e33846f59
+鹤壁市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日统一更新），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/2c16f81b4a6700c0b4f99ce9f81c4d627aeca059
 。
-河池市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/ac79eb16bc3967f5a4b671ebf913bad97cc01a9d
+河池市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/higginssara654/gexwcz/commit/0ea6a541a7cacd3c0d78983169994ae4ddec687e
 。
-合肥市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/4d3bd4ddcf4d2fb4411bedff8174aa5d12864879
+合肥市容声(Ronshen)冰箱）售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/3c5ad339164564d988d29a1ecbd5d33b5af0392b
